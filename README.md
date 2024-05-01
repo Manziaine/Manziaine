@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Manziaine
+- 👀 I’m interested in ethical hacking and cybersecurity.
+- 🌱 I’m currently learning ethical hacking.
+- 💞️ I’m looking to collaborate on projects about cyber security and ethical hacking.
+- 📫manzidechard22@gamil.com
+- ⚡ Fun fact: i am so into space physics.
